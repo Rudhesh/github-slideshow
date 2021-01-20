@@ -1,2 +1,1 @@
-not for kids 
-
+used recycle plastic
